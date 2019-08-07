@@ -1,2 +1,0 @@
-# Hack-SMS
-Anonymous Indonesia
